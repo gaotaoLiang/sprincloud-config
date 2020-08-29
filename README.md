@@ -1,1 +1,1 @@
-# sprincloud-config·şÎñ¶ËÅäÖÃÖĞĞÄ
+# sprincloud-configæœåŠ¡ç«¯é…ç½®ä¸­å¿ƒ
